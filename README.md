@@ -1,16 +1,17 @@
-## Hi there 👋
+# n1.domains ♥
 
-<!--
-**n1dmn/n1dmn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+After nearly 4 years of helping great people find their perfect domains and start their journey, it's time for us to move on.
 
-Here are some ideas to get you started:
+Our chapter ends. Maybe yours begins?
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+**Available:**
+- n1.domains
+- n1domains.com / .org / .net
+- n1domain.com / .org / .net
+- n1dmns.com / .org / .net
+- n1dmn.com / .org / .net
+- n1d.mn
+
+**Contact:** offers@n1.domains
+
+*December 2025*
